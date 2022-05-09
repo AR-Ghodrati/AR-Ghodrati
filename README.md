@@ -15,7 +15,7 @@
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 ### 🤔 About
--  **Working :** [GameService Cloud Platform ☁️](https://gamesservice.ir/) | Forex Exchange Market Developer
+-  **Working :** [CTO at DreamRain Co.](https://drainco.ir/) | Network Developer
 -  **Hobbies :** Movies 🎥 | Music 🎧
 -  💬 Ask me about: everything especially about 💻, 🎥 , 🎧
 
